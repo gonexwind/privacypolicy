@@ -32,6 +32,6 @@ Updates to Privacy Policy:
 
 We reserve the right to update our Privacy Policy to reflect changes in our practices. We will notify you of any significant updates through the app or other communication channels.
 
-By using "GYM FOR NEWBIE," you agree to the terms outlined in this Privacy Policy. If you have any questions or concerns, please contact us at [your contact information].
+By using "GYM FOR NEWBIE," you agree to the terms outlined in this Privacy Policy. If you have any questions or concerns, please contact us at fikky.ardi15@gmail.com.
 
 Last Updated: 18-12-2023
